@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do pietro-TH 😁
+## Bem-vindo(a) ao perfil do pietro-TH 🌴
 
  <div>
    <a href="https://github.com/pietro-TH">
